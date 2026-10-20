@@ -1,3 +1,7 @@
+[English](#no-answers-given-답을-안-줌) / [한국어](#답을-안-줌-no-answers-given)
+
+---
+
 > **Language Priority Notice**  
 > English materials may serve as supplementary materials for reference, comparison, and structural alignment checks.  
 > In some cases, comparison with English wording may help reveal and correct errors in Korean phrasing.  
